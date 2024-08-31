@@ -5,6 +5,7 @@
 - 📫 How to reach me (no)
 - 😄 Pronouns: why boy
 - ⚡ Fun fact: I dont think so.
+- Also how do i play games on here?
 
 <!---
 RookieCookie1/RookieCookie1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
